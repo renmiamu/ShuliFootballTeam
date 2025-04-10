@@ -2,7 +2,7 @@
 
 > 在本届赛事中，树礼书院创造历史最佳战绩，获得书院杯亚军
 >
-> [赛事集锦]([2024年南方科技大学书院杯树礼男足赛事集锦_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1NT421q7cS/?spm_id_from=333.1387.upload.video_card.click&vd_source=3ee4b895362d07bcf970153c86744de8))
+> [2024年南方科技大学书院杯树礼男足赛事集锦_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1NT421q7cS/?spm_id_from=333.1387.upload.video_card.click&vd_source=3ee4b895362d07bcf970153c86744de8)
 
 ## 赛事历程
 
